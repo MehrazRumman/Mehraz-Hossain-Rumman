@@ -1,5 +1,5 @@
 # Mehraz Hossain Rumman
-*Student of Jagannath University  | Noob programmer *
+*Student of Jagannath University  | Noob programmer*
 
 # Education
 
